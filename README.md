@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @walker00319.
+- 👀 I’m interested in Computers, Coding, AI, Technology, Science, and SpaceX.
+- 🌱 I’m currently studying Computer Networking.
+- 💖 I love all things technology and have a thirst for knowledge.
